@@ -1,3 +1,4 @@
-## Hi👋, I'm Rival
+## Hi👋 I'm Rival.
+
 
 
